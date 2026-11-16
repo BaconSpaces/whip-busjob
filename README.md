@@ -1,4 +1,3 @@
-![whip-busjob](https://github.com/Tnoxious/noxmz-busjobs/assets/167952403/4e61e2de-2cbf-4d97-8af0-b95a97979640)
 
 # whip-busjob
 
